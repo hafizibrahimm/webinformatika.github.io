@@ -1,1 +1,0 @@
-# webinformatika.github.io
